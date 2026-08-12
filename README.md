@@ -137,7 +137,7 @@ I'm always open to discussing:
 
 📧 **Email:** sarath4smart@gmail.com  
 📱 **Phone:** +91 7010473426  
-🔗 **LinkedIn:** [Connect with me](https://www.linkedin.com/in/sarath4smart/)
+🔗 **LinkedIn:** [Connect with me](https://www.linkedin.com/in/sarathkumar-subramanian-3b522117a)
 
 ---
 
